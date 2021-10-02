@@ -26,21 +26,21 @@ Suzuki’s word — is remarkably easy."
 ![](https://cdn.mainichi.jp/vol1/2019/04/05/20190405p2a00m0sp005000p/8.jpg?1)
 
 
-## Accolades
+### **Accolades**
 He came into this organization in 2001 as Japan’s most
 prolific hitter, and 19 years, 10 All-Star appearances, 10 Gold
 Gloves, two batting titles, and 3,089 hits later, will ultimately
 end up in [Cooperstown.](https://www.usatoday.com/story/sports/mlb/columnist/bob-nightengale/2019/02/16/ichiro-suzuki-grateful-final-ride-mariners/2894063002/)
 
 
-## Stats
+### **Stats**
 A .311 hitter in the majors and a .353 hitter in Japan, Suzuki is
 perhaps the greatest spray hitter in history regardless of league.
 He hit for very little power — despite being known for prodigious
 blasts in batting practice — and drew relatively few
 [walks.](https://www.nytimes.com/2019/03/21/sports/ichiro-suzuki-hit-total.html)
 
-## Legacy
+### **Legacy**
 The surefire Hall of Famer will go down as one of the greatest hitters
 of all-time and certainly the best Japan-born player in recent
 [memory.](https://hypebeast.com/2019/3/ichiro-suzuki-retires-mlb-baseball-seattle-mariners-japan)
